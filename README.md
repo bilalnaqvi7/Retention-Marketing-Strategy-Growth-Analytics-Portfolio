@@ -1,0 +1,2 @@
+# Retention-Marketing-Strategy-Growth-Analytics-Portfolio
+Customer Strategy &amp; Retention Marketing + Growth Analytics Portfolio — lifecycle automation, deep cohort segmentation, ROI-led finance &amp; e-commerce retention across gamified landing pages and multi-channel comms; improving reactivation and repeat behaviour via incentive economics + performance analysis, with an agentic AI workflow reducing effort.
